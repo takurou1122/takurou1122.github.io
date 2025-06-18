@@ -1,1 +1,1 @@
-# takurou1122.github.io
+google.com, pub-1669225714178174, DIRECT, f08c47fec0942fa0
